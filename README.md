@@ -6,7 +6,7 @@
     
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/misc/oil2.gif">
  <p align="center">      𝘏𝘦𝘢𝘥 𝘵𝘰 𝘮𝘢𝘪𝘯 𝘧𝘰𝘳 𝘮𝘰𝘳𝘦
-<p align="center">       “𝙄𝙩❜𝙨 𝙊𝙣𝙚 𝙏𝙝𝙞𝙣𝙜 𝙏𝙤 𝙌𝙪𝙚𝙨𝙩𝙞𝙤𝙣 𝙔𝙤𝙪𝙧 𝙈𝙞𝙣𝙙; 𝙄𝙩❜𝙨 𝘼𝙣𝙤𝙩𝙝𝙚𝙧 𝙏𝙤 𝙌𝙪𝙚𝙨𝙩𝙞𝙤𝙣 𝙔𝙤𝙪𝙧 𝙀𝙮𝙚𝙨 𝘼𝙣𝙙 𝙀𝙖𝙧𝙨.”
+<p align="center">       “𝙄𝙩'𝙨 𝙊𝙣𝙚 𝙏𝙝𝙞𝙣𝙜 𝙏𝙤 𝙌𝙪𝙚𝙨𝙩𝙞𝙤𝙣 𝙔𝙤𝙪𝙧 𝙈𝙞𝙣𝙙; 𝙄𝙩'𝙨 𝘼𝙣𝙤𝙩𝙝𝙚𝙧 𝙏𝙤 𝙌𝙪𝙚𝙨𝙩𝙞𝙤𝙣 𝙔𝙤𝙪𝙧 𝙀𝙮𝙚𝙨 𝘼𝙣𝙙 𝙀𝙖𝙧𝙨.”
     <p align="center">  <img width="100" height="100" src="https://pixelsafari.neocities.org/blinkies/web/dvdlove.gif"> <img width="100" height="100" src="https://pixelsafari.neocities.org/blinkies/no.gif">
 <img width="100" height="100"src="https://pixelsafari.neocities.org/blinkies/chillinginbed.gif">
 <p align="center"> <img width="380" height="380" src="https://pixelsafari.neocities.org/dividers/misc/oil.gif">
